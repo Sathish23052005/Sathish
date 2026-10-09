@@ -74,4 +74,4 @@ I am looking for an opportunity to begin my professional journey in the IT indus
 
 ---
 
-⭐ Thanks for visiting my profile! Feel free to explore my repositories and connect with me.
+⭐ Thanks for visiting my profile! Feel free to explore my repositories and connect with me. 
